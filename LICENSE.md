@@ -1,4 +1,4 @@
-
+Enhance Pixelmator Pro for macOS with premium Preset for Pixelmator Pro for macOS - vector export and auto-retouch, the #1 preset. Includes vector export and auto-retouch for a
 
 
 
